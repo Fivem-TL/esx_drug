@@ -28,4 +28,8 @@ https://github.com/Hamza8700/fivem_scripts
 
 Keep in mind that some esx_outlawalert may be in Danish, however you can easily translate with use of google translate or just shoot me a pm on discord.
 
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------
+Leaker - https://discord.gg/JqaBj5GmFM
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
 
